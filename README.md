@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-There's not very much I can tell about myself, sorry.
+There's not much I can tell about myself, sorry.
